@@ -1,0 +1,1 @@
+Have you ever wondered why you prefer diagrams over lectures, or why you need to "do it yourself" to truly understand a concept? This interactive VAK Quiz helps you discover your dominant learning style using the Visual, Auditory, and Kinesthetic (VAK) model.
